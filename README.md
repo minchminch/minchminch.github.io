@@ -1,1 +1,1 @@
-# minchminch.github.io
+가입부터 관리까지 인터넷닥터
